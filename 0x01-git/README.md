@@ -1,1 +1,1 @@
-Rectro ALX
+Rectro ALX Africa
